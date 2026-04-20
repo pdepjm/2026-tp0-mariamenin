@@ -1,5 +1,5 @@
 # NOMBRE: Maria Menin
-# LEGAJO; 234-042.2
+# LEGAJO; 234.042-2
 
 Hola!! tengo 19 años y cumplo años el 14 de julio. Este es mi segundo alo en la carrera y la verdad me esta gustando. 
 
