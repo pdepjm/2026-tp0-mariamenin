@@ -5,6 +5,7 @@ Hola!! tengo 19 años y cumplo años el 14 de julio. Este es mi segundo alo en l
 
 ## MIS MASCOTAS
 Tengo 4 mascotas, dos perras, una gata y una tortuga. 
+Se llaman pizza, coffy, titi y tortu :) 
 
 ## HOBBIES
 Voy al gym de lunes a viernes hace 2 años, es algo que me divierte bastante. 
